@@ -1,2 +1,2 @@
 # Bertrand-Chemta-Caleb
-Étudiant en génie énergétique et formateur en bureautique et maintenance informatique, je construis un profil centré sur la maîtrise technique, la transmission de compétences et la résolution de problèmes concrets dans les environnements numériques et énergétiques.
+Étudiant en génie énergétique, formateur en bureautique et en maintenance informatique, entrepreneur passionné, construisant un parcours fondé sur l’excellence technique, la transmission du savoir et la résolution de problèmes concrets dans les environnements numériques et énergétiques. Engagement porté par l’innovation, la discipline et la volonté de concevoir des solutions durables à fort impact.
